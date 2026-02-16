@@ -1,1 +1,1 @@
-i just got here :D
+building solutions from ideas
